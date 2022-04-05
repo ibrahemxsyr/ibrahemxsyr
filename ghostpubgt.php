@@ -1,1 +1,1 @@
-Server: GHOST PUBG
+Server: GHOST HACK
